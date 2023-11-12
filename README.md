@@ -1,1 +1,1 @@
-# super trending landing page!
+# Super trending landing page!
